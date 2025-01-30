@@ -1,0 +1,1 @@
+# Star-pattern-with-0
